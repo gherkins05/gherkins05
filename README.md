@@ -1,5 +1,5 @@
 # 💫 About Me:
-2<sup>nd</sup> Year Computer Science Student at University of Portsmouth
+3<sup>rd</sup> Year Computer Science Student at University of Portsmouth
 
 
 ## 🌐 Socials:
